@@ -1,0 +1,1 @@
+# AresTrong-Catalogo
